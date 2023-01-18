@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @DriverNG
-- A web app that connects driving schools, tutors to potential driving students and also helps facilitates their driver’s license
+Our young team of Creators are currently building magical products. We are coming your way soon.
